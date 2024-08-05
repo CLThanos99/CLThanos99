@@ -1,12 +1,15 @@
-- 👋 Hi, I’m @CLThanos99
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-AAAAAAAAAAAAAAAAAAAAAAA ME MATA
-<!---
-CLThanos99/CLThanos99 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+SOU JORGE FF REI DOS CAPAS
+
+soy la pabro de las sei la o que
+
+trabalhava numa fabrica que eu explodi
+
+sou gamer raiz, zerei dark souls na guitarra do guitar hero
+
+sou legal 
+
+sou o pai do CLtuluos
+
+![](https://media.tenor.com/PND6dbMpQysAAAAi/spongebob-sad-spongebob.gif) ![](https://media.tenor.com/Wy9v13xdYqAAAAAi/dance.gif) ![](https://media.tenor.com/Q49ZHhSEPngAAAAi/dicord-keep.gif)
+
+![](https://media.tenor.com/0XSg3Cc9ao8AAAAi/carl-and-shaggy-jamin-dance.gif)
